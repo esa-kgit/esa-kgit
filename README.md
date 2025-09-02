@@ -1,2 +1,2 @@
 ## hi i'm esa 🐬�
-nothing here just yet 🛫
+nothing much here just yet 🛫
